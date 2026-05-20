@@ -1,4 +1,5 @@
-#InstaInsane
+#InstaInsanemdmeghabohra8
+
 ## Author: github.com/Avenge-hacker
 ## IG: instagram.com/Avenge050
 ### Don't copy this code without give me the credits, bitch! 
